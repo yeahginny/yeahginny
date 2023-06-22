@@ -8,4 +8,4 @@
 
 * 🙋🏻‍♀️ Pronouns:she/her
 
-* 🖱️ Click[here](https://www.instagram.com/yejinlee.zip/)
+* 🖱️ Click [here](https://www.instagram.com/yejinlee.zip/)
