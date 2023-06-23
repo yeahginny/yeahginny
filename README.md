@@ -6,6 +6,6 @@
 
 * 💬 I can speak 🇰🇷🇨🇳🇺🇸
 
-* 🙋🏻‍♀️ Pronouns:she/her
+* 🙋🏻‍♀️ Pronouns: she/her
 
 * 🖱️ Click [here](https://www.instagram.com/yejinlee.zip/)
